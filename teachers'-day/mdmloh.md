@@ -1,5 +1,6 @@
 dear mdm loh,
 thankyou for teaching us so many new things this year! we didn't only learn science from you, but also life lessons, or even tips to deal with our love life !
+you have taught us many different values through the motivational videos that you have recently showed us, and i must say that one of the videos was really touching and it actually motivated me to follow the person in that video !
 thankyou for bringing us to the lab as many times as possible because you know we like having lessons there
 also, thankyou so much for making all your lessons the most entertaining ones !!
 we really appreciate the amount of effort you put in to make us love and get excited to learn science
