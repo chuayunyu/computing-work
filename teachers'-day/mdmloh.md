@@ -9,4 +9,6 @@ when we have questions, we will be abe to find you for consultation and you will
 you also find extra papers to give us for revisiom for us to revise for exams
 most importantly, during class when we look stressed, you will teach us life lessons that life as a student is not always about studying, and we would need to take breaks
 you will even show us videos that you think are inspirational so that we will learn life lessons
+you would also constantly encourage us to not give up.
+(idea by jiaxuan)
 thank you so much for evrything and i hope you'll have a great teachers' day !!
